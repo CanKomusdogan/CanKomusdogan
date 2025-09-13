@@ -45,4 +45,4 @@ I guess im kind of a nerd nutjob lol
 
 <br>
 
-Right now i can't really act freely because of my internship, once im out in a month i will go full focus mode and develop some serious stuff.
+Right now i can't really act freely because of my internship, once im out i will go full focus mode and develop some serious stuff.
